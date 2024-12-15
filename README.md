@@ -36,4 +36,4 @@ In my case : 3 times per days
 
 * Twitter: [@u2pitchjami](https://twitter.com/u2pitchjami)
 * Github: [@u2pitchjami](https://github.com/u2pitchjami)
-* LinkedIn: [@thierry-beugnet-a7761672](https://linkedin.com/in/thierry-beugnet-a7761672)
+* LinkedIn: [@LinkedIn](https://linkedin.com/in/thierry-beugnet-a7761672)
